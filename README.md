@@ -1,1 +1,1 @@
-# travel-and-exle-with-vansh
+# travel-and-explore-with-vansh
